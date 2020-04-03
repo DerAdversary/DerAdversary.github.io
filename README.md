@@ -1,1 +1,1 @@
-# DerAdversary.github.io
+google-site-verification=qmDSyFWeZLHYFMInHHiXeiy7KHcbnwgzZN_jQXwCoVM
